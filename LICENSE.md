@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency Automation for birdeye sniper bot | multi-chain-support & stop-loss, the #1 birdeye sniper bot. Includes multi-chain-support and stop-loss
 
 
 
